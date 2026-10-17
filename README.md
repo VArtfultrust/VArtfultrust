@@ -3,7 +3,7 @@
 
 
 
-<img width="1920" height="1200" alt="Image" src="https://github.com/user-attachments/assets/d77a81a3-4af0-40c7-a497-5a644a260556" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/bce761a5-4b6b-4230-ad2c-510cc6592768" />
 
 ✦ ₊꒷꒦︶︶︶ ୨୧ ︶︶︶꒷꒦ෆ
 
